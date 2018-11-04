@@ -1,8 +1,15 @@
-## You are here to STAY
-
-本文全部来自[公子V](<https://www.zhihu.com/people/63ef903f074d379b35cf7c34fd3d01c6>)回答[怎样认识比你优秀的人并和他们成为朋友？](<https://www.zhihu.com/question/20282222/answer/524737149>)的节选。
+---
+title: You are here to STAY
+date: 2018-10-04 22:35:43
+tags: 'style'
+---
 
 你，作为一个华盛顿大街上扔一块砖头就能砸死五个的小小说客，第一次去见一个参议员，你要给他传递的第一个信号是什么？
+
+<!-- more -->
+
+> 本文全部来自[公子V](<https://www.zhihu.com/people/63ef903f074d379b35cf7c34fd3d01c6>)回答[怎样认识比你优秀的人并和他们成为朋友？](<https://www.zhihu.com/question/20282222/answer/524737149>)的节选。
+
 
 1. 代表公司家大业大，必须认识你？
 2. 要说的事项关系重大，有立法希望？
